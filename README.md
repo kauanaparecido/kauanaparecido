@@ -1,4 +1,4 @@
-## 0la, seje bemvindo ao meu prfil 🇧🇷
+## 0la, seje bem vindo ao meu prfil 🇧🇷
 
     meu nome é kauan
 
